@@ -1,2 +1,3 @@
 # hello-world
 Netuším co vlastně dělám
+Anglicky umím tak plavat a utíkat takže netuším co vlastně tady budu dělat jakožto starej parez co je rád když napíše sms...
